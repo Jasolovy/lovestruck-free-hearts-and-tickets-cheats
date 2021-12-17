@@ -1,2 +1,5 @@
-# lovestruck-free-hearts-and-tickets-cheats
-Lovestruck game Cheat free hearts and tickets hacks no verification iOS android 2022
+# Lovestruck game Cheat free hearts and tickets hacks no verification iOS android 2022
+
+Lovestruck game Cheat free hearts and tickets hacks no verification iOS android 2022 - Participate in Lovestruck Choose Your Romance cheats every time you appear. Events are limited in time, but as long as slingshot braves are still supported by developers (this should be a long time), they will always be replaced by new events. The more activities you participate in, the greater the reward. -Add as many friends as you can, because you and your friends can get free rewards by tracking each other. Usually, these rewards include things like gemstones. Here's how to get more gold and materials. -Fight as much as possible. Even if you are caught in the current battle, go to the old battle. The more you fight, the more gold and materials you earn. -Tandem combo, because combo bonus includes gold and materials, not just damage. -Sell equipment you no longer need to earn more gold. Remove equipment you no longer need, or equipment you don't have space to place, to get more materials. -Participate in the competition and get greater rewards. Cooperative fighting will also bring rich returns to you and the people around you.
+
+<a href="https://windmod.icu/lovestruck/">go here</a>
